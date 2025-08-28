@@ -1,1 +1,1 @@
-![WhatsApp Image 2024-10-21 at 11 47 11_612c6fae](https://github.com/user-attachments/assets/9b492ff5-0e22-414a-85f9-55a229f3fa02)
+<img width="959" height="420" alt="image" src="https://github.com/user-attachments/assets/991c1bfb-5643-4f13-a7a7-f7db7af9f6a4" />
